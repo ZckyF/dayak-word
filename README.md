@@ -1,1 +1,1 @@
-# dayak-word
+# Jangan lupa di clone masbro
